@@ -1,3 +1,6 @@
 ## References
 
-Please do not contact any previous employers.
+
+Please contact me directly for references. 📞
+
+
